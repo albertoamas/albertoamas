@@ -1,4 +1,4 @@
-Hola
+Hola 😊 Bienvenidos 
 - 📌Me llamo Alberto Amas.
 - ⚡Tengo 18 años y resido en la ciudad de Tarija - Bolivia.
 - 🌎Estudie y salí del Colegio Hermano Felipe Palazon.
